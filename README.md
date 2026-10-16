@@ -9,7 +9,7 @@
 ## Kesan Pesan INTRIVIA Sejauh Ini 
 [Kesan: sangat menyenangkan, pesan: semoga semakin maju]
 
-## Kesan Pesan Cluster [Nomor Cluster] Sejauh Ini 
+## Kesan Pesan Cluster [2] Sejauh Ini 
 [Kesan: sangat asik, seru, sangat membantu kakaknya, pesan: semoga kakak mentor selalu sukses] 
 
 ## Harapan Kuliah
